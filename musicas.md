@@ -1,3 +1,0 @@
-rapariga não
-Estranho
-Propaganda
