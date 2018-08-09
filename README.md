@@ -1,1 +1,3 @@
-# devops-aula1
+Bete Faria
+Gloria Pires
+Sylvester Stallone
