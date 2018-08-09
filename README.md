@@ -1,5 +1,7 @@
 Bete Faria 
 
-Gloria Pires 
+Xandy 
 
 Sylvester Stallone
+
+Tony Ramos
